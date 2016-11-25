@@ -1,0 +1,1 @@
+This project is part of the master dissertation of Diana Bertuol Garcia for her master degree in Ecology in University of São Paulo - USP
